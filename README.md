@@ -1,3 +1,3 @@
 fil.com.unica
-Interfacce e usanilità + progettazione siti web
+Interfacce e usabilità + progettazione siti web
 Progetto "Azienda Agricola Truncu Sa traia"
